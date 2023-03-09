@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Yao Adzikah
 - 👀 I’m interested in solving problem 
 - 🌱 I’m currently learning solution
-- 💞️ I’m looking to collaborate on like mindly 
+- 💞️ I’m looking to collaborate with like minded 
 - 📫 How to reach me +233266212420
 
 
